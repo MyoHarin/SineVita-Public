@@ -5,4 +5,10 @@
 
   This is a public view-only access to the SineVita project. This would include prototypes, promotional material and class references. Project SineVita is still in its early stage, with only a few months in development. Any attention is considered great support! Thanks for visiting!
 
-    
+  We are looking for feedback from:
+  - Musicians
+  - World Builders
+  - Anyone who want to take a looksey~
+  Join our discord! https://discord.gg/Z9RQSDfNb2
+  
+
